@@ -4,4 +4,4 @@
 
 ### Better late than never
 
-Hey Pooks
+Progress not Perfection. Progress, not Perfection. Or so I've been told
